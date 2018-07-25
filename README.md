@@ -1,0 +1,2 @@
+# Tarla
+Şən Ferma
